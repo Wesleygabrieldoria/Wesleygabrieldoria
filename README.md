@@ -1,0 +1,6 @@
+- # eu
+- WesleyDoria :blue_heart:
+-  g-mail: wesley.doria@escola.pr.gov.br :briefcase:
+- Gosto de computador,jogar,conversar e comer ks :desktop_computer:	:headphones: 
+- insta: wesley_doriaa :iphone:
+- :stuck_out_tongue_closed_eyes:
